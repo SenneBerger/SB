@@ -14,4 +14,4 @@ Wendy: singing, photography
 Angel: Gaming, Chilling with friends.
 
 thomas: welke music luistern juilie naar?
-
+Hardstyle/Raw/Hardcore
