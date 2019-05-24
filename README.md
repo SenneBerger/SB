@@ -7,3 +7,4 @@ What is your favorite movie?
 Interstellar
 
 Do you have any hobby's?
+Wendy: singing, photography
