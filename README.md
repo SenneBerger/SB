@@ -13,3 +13,5 @@ Do you have any hobby's?
 Wendy: singing, photography
 Angel: Gaming, Chilling with friends.
 
+thomas: welke music luistern juilie naar?
+
